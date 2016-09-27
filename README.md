@@ -18,4 +18,15 @@ list all your bro puns here
 + broseidon, king of the brocean
 + brotein shake
 + Nelly Brotado
-+ Brontosaurus? 
++ Brontosaurus? Brontosaurus!!!
++ This list is brothetic, bromo. Psybrological
++ Brotons, neutrons, and electrons
++ Bromance
++ Cybro space
++ Sbroghetti
++ I woke up in a new brogatti.
++ Brotocol
++ Brototype
++ Brodoyle rules!
++ Shall I bro on?
+
